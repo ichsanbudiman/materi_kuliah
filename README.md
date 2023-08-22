@@ -1,0 +1,1 @@
+Seluruh matakuliah informatika
